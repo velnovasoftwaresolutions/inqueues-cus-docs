@@ -104,4 +104,4 @@ If you have any questions about this Privacy Policy, please contact us at:
 
 **Velnova Software Solutions Pvt. Ltd.**
 
-**Email:** [info@velnovaapp.com]
+**Email:** info@inqueues.com
